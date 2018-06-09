@@ -1,2 +1,0 @@
-# ShanyuGitHub
-Shanyu's Documents
